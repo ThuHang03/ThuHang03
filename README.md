@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Thu Hang
+- 👋 Hi
